@@ -65,7 +65,7 @@ The system provides a detailed analysis of gold prices, including:
 
 ## Contact
 
-For any inquiries, please reach out to [s.shivnaran@gmail.com](s.shivnaran@gmail.com).
+For any inquiries, please reach out to [s.shivnaran@gmail.com](s.shivnaran@gmail.com),[email](22pd28@psgtech.ac.in).
 
 ---
 
